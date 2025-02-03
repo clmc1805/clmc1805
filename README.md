@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Nofing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... maxcaldwell100@aol.com
-- 😄 Pronouns: ... MC
+- 😄 Pronouns: ... Him/He
 - ⚡ Fun fact: ...
 
 <!---
